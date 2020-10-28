@@ -1,0 +1,2 @@
+# SissejuhatusKT
+Sissejuhatus Erialasse KT
